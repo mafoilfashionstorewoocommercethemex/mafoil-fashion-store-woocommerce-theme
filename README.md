@@ -1,0 +1,1 @@
+# mafoil-fashion-store-woocommerce-theme
